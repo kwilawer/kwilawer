@@ -10,9 +10,9 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...
 - 😄 Pronouns: ...
 
--->
-
 - 🌱 I’m currently learning 
 - 📫 How to reach me: kwilawer@gmail.com
 - ⚡ Fun fact: I'am one-man band 😄
+
+-->
 
